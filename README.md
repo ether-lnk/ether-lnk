@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ether-lnk
+- 👋 Hi, I’m @ether-lnk，沈心耶
 - 👀 I’m interested in AI and English
 - 🌱 I’m currently learning some advanced knowledge of CNN
 - 😘 Another account of @chenpotatos
