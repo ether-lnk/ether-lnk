@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ether-lnk
 - 👀 I’m interested in AI and English
 - 🌱 I’m currently learning some advanced knowledge of CNN
-- 😘 Another account of @chenpotatos
+- 😘 Another account of @chenpotatos good
 
 
 ## &#x1f4c8; GitHub Stats
