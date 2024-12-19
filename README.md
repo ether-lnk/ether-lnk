@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and English
 - 🌱 I’m currently learning some advanced knowledge of CNN
 - 😘 Another account of @chenpotatos
-- 别问了别问了，是ENFJ好叭，求求你们别轰炸我的kikubox了qwq
+- ✨ 别问了别问了，是ENFJ，求求你们别轰炸我的kikubox了qwq
   
 
 ## &#x1f4c8; GitHub Stats
