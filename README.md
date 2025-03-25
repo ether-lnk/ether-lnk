@@ -3,7 +3,13 @@
 - 🌱 I’m currently learning some advanced knowledge of CNN
 - 😘 Another account of @chenpotatos
 - ✨ 别问了别问了，是ENFJ，求求你们别轰炸我的kikubox了qwq
-  
+- ✨ 年年有风 风吹年年 慢慢及漫漫
+- ✨ 朝朝辞暮 尔尔辞晚 碎碎念安安
+- ✨ 岁岁落暮 暮坠轮轮 暮暮即慕慕
+- ✨ 寒风渐起 起风渐寒 潇潇亦萧萧
+- ✨ 思思念念 新新相忘 新新同馨馨
+- ✨ 日日升日 日落日日 旧旧依久久.
+
 
 ## &#x1f4c8; GitHub Stats
 
